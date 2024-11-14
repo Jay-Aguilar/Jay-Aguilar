@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on Shopify Projects.
-
-- 💬 Ask me about Shopify Store Setups.
+- 🔭 I’m currently seeking employment.
+- 
 - 📫 How to reach me: contact@jayaguilar.dev
