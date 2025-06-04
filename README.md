@@ -2,4 +2,4 @@
 
 - 🔭 I’m currently seeking employment.
 - 
-- 📫 How to reach me: contact@jayaguilar.dev
+- 📫 How to reach me: contactjaimeaguilar@gmail.com
